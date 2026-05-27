@@ -1,4 +1,4 @@
-ূ<img width="1600" height="760" alt="WhatsApp Image 2026-05-24 at 7 12 08 PM" src="https://github.com/user-attachments/assets/9414b71c-495e-4bdd-a853-d2e294880fd0" />
+<img width="1600" height="760" alt="Report" src="https://github.com/user-attachments/assets/ea41cbbe-abe6-4241-9694-8965e7fd13a4" />
 
 IPL Predictive Analytics & Consultant Reporting Engine
 
